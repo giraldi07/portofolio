@@ -111,9 +111,8 @@ Graduate of Bachelor's Degree in Communication Science from Telkom University, B
 
 ### The Certificate of Skill:
 
+- **Design Graphic**: @[E-Certificate](https://drive.google.com/drive/folders/1T3WDsP6DUgpyD2ia0St4cUfiRM9EDpFA?usp=sharing)
 - **UI/UX Design**: @[E-Certificate](https://drive.google.com/drive/folders/1q74B-2GIZOrt4a3ca2X9mhZVcxYAafEw?usp=sharing)
 - **HR Developement**: @[E-Certificate](https://drive.google.com/drive/folders/1S3WTNbwgpq3am5CpsJtLvKEPiBciE3mp?usp=sharing)
-- **Microsoft Excel**: @[E-Certificate](https://drive.google.com/drive/folders/1UwffkhXumPeuG4eeJvfksFXVUbo0fGl1?usp=sharing)
-- **Digital Marketing**: @[E-Certificate](https://drive.google.com/drive/folders/19dd3Q5R7JzhDH_vWCBY6MwuMtNt7Q2oT?usp=sharing)
 - **SEO**: @[E-Certificate](https://drive.google.com/drive/folders/1uP8obd56p0-UrJOL5yOMGsy_y1s5-Gd7?usp=sharing)
-- **Ads**: @[E-Certificate](https://drive.google.com/drive/folders/148xrdXIfOQFHWitzKO_bVIQ9RruaFH8L?usp=sharing)
+
